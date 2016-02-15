@@ -22,4 +22,7 @@ Game Idea #4: Some kind of travel game where you get to learn different trivia a
 
 Game Idea #5: Geography game for kids. Learning shapes and angles.
 
+I like the first idea of Dr. Dog. Right away I can visualize a cartoon Golden Retriever in a doctors outfit with a waiting room full of different animals. It could be like an interactive Animal Planet where you help Dr. Dog learn about the animals and help them feel better or find a solution to their problem.
+
+Great idea! I'll try drawing something and submitting it.
 
